@@ -1,1 +1,0 @@
-# yusufdundar.github.io
